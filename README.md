@@ -1,5 +1,5 @@
 - 👋 Olá, eu sou @tsuomorii
-- 👀 Eu estou interessada em aprender
+- 👀 Eu estou interessada em aprender programação
 - 🌱 @aclaraoliv 
 - 💞️ Billie lovers
 - 📫 Contato @anaclaradeoliveira@gmail.com
